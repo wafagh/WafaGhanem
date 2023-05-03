@@ -10,7 +10,7 @@
 
 🙋🏽‍♂️ Highly motivated fast learner able to self-learn new skills and technologies, both independent and team player
 
-💻 Passionate about Development new technologies and making a diffrence
+💻 Passionate about Development new technologies and making a difference
 
 🗂️ All of my projects are public feel free to take a look 😊
 
