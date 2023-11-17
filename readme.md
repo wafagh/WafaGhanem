@@ -6,13 +6,13 @@
 
 
 
-🔎 Currently seeking my first opportunity to work in Software Development
+🔎 Currently seeking an opportunity to work in Software Development
 
-🙋🏽‍♂️ Highly motivated fast learner able to self-learn new skills and technologies, both independent and team player
+🙋🏽‍♂️ Highly motivated and fast learner, able to self-learn new skills and technologies, both independent and team player
 
-💻 Passionate about Development new technologies and making a difference
+💻 Passionate about developing new technologies and making a difference
 
-🗂️ All of my projects are public feel free to take a look 😊
+🗂️ My projects are public feel free to take a look 😊
 
 📫 Email me @ wafagha3@gmail.com
 
