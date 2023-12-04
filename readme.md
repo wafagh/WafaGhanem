@@ -1,7 +1,7 @@
 
                         Hello there! 👋 My name is Wafa Ghanem
 
-                               Software Engineer Graduate
+                                   Software Engineer
 
 
 
